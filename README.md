@@ -1,1 +1,0 @@
-# capacitacion-en-TIC-S
